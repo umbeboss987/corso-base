@@ -1,1 +1,1 @@
-# corso-base
+qui prenderò appunti durante la lezione.
